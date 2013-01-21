@@ -1,6 +1,8 @@
-% The Way
-% Questions
-% English
+<!---
+The Way
+Questions
+English
+-->
 
 # Bible and Qur’an
 

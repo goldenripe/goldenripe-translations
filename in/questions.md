@@ -1,6 +1,8 @@
-% The Way
-% Questions
-% Indonesian
+<!---
+The Way
+Questions
+Indonesian
+-->
 
 # Alkitab dan Al-Qur’an
 
