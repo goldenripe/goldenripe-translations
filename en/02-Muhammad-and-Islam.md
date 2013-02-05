@@ -63,3 +63,4 @@ Later God caused the Virgin Mary to become pregnant by the Holy Spirit. When the
 Someone asked the Prophet John, “Are you the one that was prophesied about that will come and destroy Satan and remove man’s sin?” John said it was not him but that he came to prepare the way for the promise of God. When he saw Jesus, the Prophet John proclaimed, “Look, the Lamb of God that takes away the sin of the world!” Jesus died as a sacrifice to pay the penalty for our sin. By doing so He destroyed the power of Satan and freed us from our sin.
 
 This is why Christians believe in Jesus. He is the Spirit of God (Rohullulah) and the Word of God (Kalimatullah) that was promised to Adam and Abraham.
+
